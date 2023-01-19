@@ -1,4 +1,4 @@
-## Bem-vindo(a) ao perfil de Luiza 😁
+## Bem-vindo(a) ao perfil de Luiza
 
  <div>
    <a href="https://github.com/Luiza-yeui">
